@@ -7,8 +7,6 @@ Iron Man, like knights of old, is identified by the armor he wears.
  
 >Tony Stark is a mixture of man and machine. 
 
->Stark got his income from a specific source: he manufactured and sold weapons 
-
 >He is a great genius whose inventions has proved himself as a great worth to    Avengers team
 
 
